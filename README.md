@@ -1,3 +1,5 @@
+## 📝 Tarea Semana 7: “Conexión Cuerpo y Código” 🧠🏃‍♀️
+
 ## ✍️ Parte 1: Diario físico
 
 ### 🧍‍♂️ ¿Cómo cuido (o descuido) mi cuerpo actualmente?
